@@ -8,7 +8,7 @@
 
 本站节点区域包含: 香港、台湾、新加坡、韩国、日本、马来西亚、美国、英国、德国、印度、荷兰、土耳其、意大利、柬埔寨、越南、阿根廷
 
-本站流媒体稳定解锁: Netflix | 动画疯 | Disney+ | Dazn | HBO | Amazon | Prime | ChatGPT等1111
+本站流媒体稳定解锁: Netflix | 动画疯 | Disney+ | Dazn | HBO | Amazon | Prime | ChatGPT等11111
 
 ## 滑稽场优惠码
 
